@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SpandanaBl
-- 👀 I’m interested in dance
+- 👀 I’m interested in playing games
 - 🌱 I’m currently learning dance
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
